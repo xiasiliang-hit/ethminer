@@ -1,8 +1,8 @@
 We can make ETH miner hardware ! we can also make Bitcoin machine !
 It is a coposition of software and hardware.
 
-contact wx 81843824
-email xiasiliang@gmail.com !
+contact wechat 81843824
+email xiasiliang@gmail.com 
 
 Please notice the reply will take one to several days if you use email. 
 
